@@ -1,1 +1,13 @@
-# s16
+http://www.gzb66.com
+http://www.h3256.com
+http://www.hcbjb.com
+http://www.hckkz.com
+http://www.hcw28.com
+http://www.hcyyz.com
+http://www.heiup.com
+http://www.hfczz.com
+http://www.jzwj8.com
+http://www.k0369.com
+http://www.k8imk.com
+http://www.kan98.net
+http://www.kbbsp.com
